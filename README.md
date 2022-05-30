@@ -6,4 +6,4 @@
 # 本程序仅供学习使用,使用软件造成的其他任何后果,请自行承担.
 
 钱多的老铁,也可以打赏下
-
+![image](https://github.com/newblash/Cat_recycle_bin/blob/main/ICO/%E6%89%93%E8%B5%8F%E4%BA%8C%E7%BB%B4%E7%A0%81.png)
